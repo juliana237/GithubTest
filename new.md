@@ -1,4 +1,4 @@
-## welcome to gdsc uba
+## welcome to my world
 - i'm juliana
 - [Github](https://github.com/juliana237)
 - [twitter](https://twitter.com/@julianaeudoxie)
